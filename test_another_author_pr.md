@@ -1,1 +1,1 @@
-Author: Jane Doe :wave:
+Author: Jane Doe :wave: :wave:
